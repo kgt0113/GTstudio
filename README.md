@@ -1,0 +1,2 @@
+# GTstudio
+Privacy Policy
